@@ -1,6 +1,6 @@
 ### Hello!! 👋😄 I'm Lissa! 💙♒
 
-• 📖 I really like to learn <br>
+• ❣️ I really like to learn <br>
 • 🎓 I have a Bachelor's Degree in Tourism <br>
 •	📚 I'm currently studying System Analysis and Development at Universidade São Judas Tadeu <br>
 • 👩‍💻 I'm currently learning Full Stack Web Development at Generation Brasil <br>
